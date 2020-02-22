@@ -1,2 +1,2 @@
 # NewRepo
-Hello, Democrats dictator. :)
+Hello, Democrats dictator. :) From me
