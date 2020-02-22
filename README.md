@@ -4,5 +4,3 @@ Hello, Democrats dictator. :)
 Hello, Democrats dictator. :) From me
 Fxck Q
 damn
-yeah
-yeah h
